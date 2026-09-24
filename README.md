@@ -1,3 +1,3 @@
 September 24, 2026
 
-<!-- Round 1 · 2026-09-24 17:12:41 · NwGRg1z8 · nolamardigras@outlook.com, pscruggs@wmscruggs.com -->
+<!-- Round 2 · 2026-09-24 17:12:47 · KVTk0XpI · trey@bergmanadrgroup.com, megan.williamslaw@outlook.com -->
